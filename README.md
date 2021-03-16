@@ -1,6 +1,6 @@
 # Mi Perfil
 
-*Buenas me llamo **Ivan Torres**, naci el **9 de septiembre de 2001** y tengo **19 años**. Soy de **Ranelagh, Berazategui**, y me gustan mucho los videojuegos como por ejemplo **CSGO** o **WARZONE**
+*Buenas me llamo **Ivan Torres**, naci el **9 de septiembre de 2001** y tengo **19 años**. Soy de **Ranelagh, Berazategui**, y me gustan mucho los videojuegos como por ejemplo **CSGO** o **WARZONE***
 
 ![](https://i.imgur.com/4CDeU.gif/) 
 
