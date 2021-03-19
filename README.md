@@ -7,3 +7,7 @@ No tengo mucha experiencia programando cosas. lo maximo que hice fue programar u
 ![](https://i.imgur.com/4CDeU.gif/) 
 
 ![](https://2.bp.blogspot.com/-KVR9o7mclUE/WKh5kz21P-I/AAAAAAAABAQ/YaPC37qfIbMujQcAK8dfmqg_UJaJ41mdgCLcB/s1600/csgo%2Bgif%2B9.gif)
+
+![](https://i.gifer.com/G2Hk.gif)
+
+![](https://i.pinimg.com/originals/2f/8b/d7/2f8bd77c08e102c340efaf8a6764acf0.gif)
